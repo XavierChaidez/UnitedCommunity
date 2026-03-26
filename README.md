@@ -1,1 +1,1 @@
-yo join my discord
+Use PayPal
